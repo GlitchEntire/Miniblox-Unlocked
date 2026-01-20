@@ -1,2 +1,2 @@
-# Miniblox-Unlocked
-Miniblox.io Unlocked Zip
+Miniblox unlocked ZIP😍
+Full By: MiniTrumps and Heythereu
